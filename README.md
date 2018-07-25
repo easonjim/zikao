@@ -9,7 +9,15 @@
 5、领取毕业证  
 6、考学位英语  
 7、领取学位证  
-5184是目前发现的流程比较清晰的网站：http://www.5184.com/zikao/    
+总体概述：  
+5184是目前发现的流程比较清晰的网站：http://www.5184.com/zikao/    
 根据5184的官网了解了大概的流程之后，就是选择专业和买书来自选，我直接是教材+真题的模式。http://www.5184book.com/ （建议不要在这里买，发货非常慢，服务态度非常不好，可以在这里找书名，然后去淘宝购买）  
 发现这家淘宝店卖整套教材的不错，便宜且专业，会提示你哪些教材已经不用了：https://shop553874635.taobao.com/  
 学士学位英语考试入口：http://crxw.smu.edu.cn/  
+分布指导：  
+0、总体流程：http://html.5184.com/yunying/zk/zk_zt201810/index.html  
+1、新生报名流程：http://html.5184.com/yunying/zk/zk_zt201810/index.html     
+2、报考专业本科：http://www.5184.com/zikao/zhuanye/201706/43096.html  
+2.1、计算机专业本科：http://www.5184.com/zikao/zhuanye/201706/43903.html  
+3、每年考试专业：http://www.5184.com/zikao/skb/201710/43763.html  
+4、每年各专业考试时间及开考科目：http://rec-www.5184.com/media/content/20171009/-6965917392647562320.docx  
